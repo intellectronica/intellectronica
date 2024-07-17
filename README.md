@@ -2,7 +2,7 @@
 
 🏠 Homepage / Blog: **[intellectronica.net](https://intellectronica.net/)**
 
-🧠 AI (learning in public): **[ai.intellectronica.net](https://ai.intellectronica.net/)**
+🧠 AI: **[ai.intellectronica.net](https://ai.intellectronica.net/)**
 
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
 
