@@ -1,4 +1,4 @@
-# 🤷🏽‍♀️ Eleanor Berger&nbsp;&nbsp;&nbsp;<small>{*@intellectronica*}</small>
+# 🤷🏽‍♀️&nbsp;&nbsp;&nbsp;Eleanor Berger&nbsp;&nbsp;&nbsp;<small>{*@intellectronica*}</small>
 
 🏠 Homepage / Blog: **[intellectronica.net](https://intellectronica.net/)**
 
