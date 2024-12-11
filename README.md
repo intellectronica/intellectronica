@@ -4,7 +4,7 @@
 
 🧠 AI: **[ai.intellectronica.net](https://ai.intellectronica.net/)**
 
-🐘 ActivityPub (Mastodon): **[intellectronica@mastodon.social](https://mastodon.social/@intellectronica)**
+🐘 ActivityPub (Mastodon): **[@intellectronica@mastodon.social](https://mastodon.social/@intellectronica)**
 
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
 
