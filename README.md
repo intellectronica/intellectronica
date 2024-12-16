@@ -6,7 +6,7 @@
 
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
 
-🦋 Bluesky: **[@intellectronica.bsky.social](https://bsky.app/profile/intellectronica.bsky.social)**
+🦋 Bluesky: **[@intellectronica.net](https://bsky.app/profile/intellectronica.net)**
 
 👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
 
