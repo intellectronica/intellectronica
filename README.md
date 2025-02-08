@@ -4,9 +4,11 @@
 
 🧠 AI: **[ai.intellectronica.net](https://ai.intellectronica.net/)**
 
-🦋 Bluesky: **[@intellectronica.net](https://bsky.app/profile/intellectronica.net)**
-
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
+
+**@** Threads: **[@intellectronica](https://www.threads.net/@intellectronica)**
+
+🦋 Bluesky: **[@intellectronica.net](https://bsky.app/profile/intellectronica.net)**
 
 👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
 
