@@ -8,8 +8,6 @@
 
 👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
 
-🦋 Bluesky: **[@intellectronica.net](https://bsky.app/profile/intellectronica.net)**
-
 📺 YouTube: **[youtube.com/@intellectronica](https://www.youtube.com/@intellectronica)**
 
 🛠️ HN: **[id=intellectronica](https://news.ycombinator.com/user?id=intellectronica)**
