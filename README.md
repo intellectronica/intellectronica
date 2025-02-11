@@ -6,11 +6,9 @@
 
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
 
-**@** Threads: **[@intellectronica](https://www.threads.net/@intellectronica)**
+👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
 
 🦋 Bluesky: **[@intellectronica.net](https://bsky.app/profile/intellectronica.net)**
-
-👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
 
 📺 YouTube: **[youtube.com/@intellectronica](https://www.youtube.com/@intellectronica)**
 
