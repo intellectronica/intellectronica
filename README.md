@@ -4,6 +4,8 @@
 
 🧠 AI: **[ai.intellectronica.net](https://ai.intellectronica.net/)**
 
+✨ Vibe: **[vibe.intellectronica.net](https://vibe.intellectronica.net/)**
+
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
 
 👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
