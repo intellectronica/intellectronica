@@ -1,4 +1,10 @@
-# 🤷🏽‍♀️&nbsp;&nbsp;&nbsp;Eleanor Berger&nbsp;&nbsp;&nbsp;<small>{&nbsp;*@intellectronica*&nbsp;}</small>
+# Eleanor Berger
+
+**Expert AI Leadership**
+
+➡️ **[ai.intellectronica.net](https://ai.intellectronica.net/)**
+
+---
 
 🏠 Homepage: **[intellectronica.net](https://intellectronica.net/)**
 
