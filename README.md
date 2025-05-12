@@ -1,8 +1,6 @@
 # Eleanor Berger
 
-**Expert AI Leadership**
-
-➡️ **[ai.intellectronica.net](https://ai.intellectronica.net/)**
+**Expert AI Leadership**&nbsp;&nbsp;&nbsp;➡️&nbsp;&nbsp;&nbsp;**[ai.intellectronica.net](https://ai.intellectronica.net/)**
 
 ---
 
