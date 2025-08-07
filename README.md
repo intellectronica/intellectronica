@@ -1,12 +1,10 @@
 # Eleanor Berger
 
-**Expert AI Leadership**&nbsp;&nbsp;&nbsp;🌐&nbsp;&nbsp;**[ai.intellectronica.net](https://ai.intellectronica.net/)**&nbsp;&nbsp;&nbsp;💬&nbsp;&nbsp;**[Get in Touch](https://ai.intellectronica.net/contact)**
-
 ---
 
 🏠 Homepage: **[intellectronica.net](https://intellectronica.net/)**
 
-🧠 AI Expertise: **[ai.intellectronica.net](https://ai.intellectronica.net/)**
+◈ OKIGU (Consulting): **[okigu.com](https://okigu.com/)**
 
 🔖 Blog: **[everything.intellectronica.net](https://everything.intellectronica.net/)**
 
