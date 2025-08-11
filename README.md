@@ -1,10 +1,12 @@
-# Eleanor Berger
+### **Eleanor Berger ([@intellectronica](https://intellectronica.net/))** — [OKIGU](https://okigu.com/) — [Elite AI-Assisted Coding](https://elite-ai-assisted-coding.dev/)
 
 ---
 
 🏠 Homepage: **[intellectronica.net](https://intellectronica.net/)**
 
-◈ OKIGU (Consulting): **[okigu.com](https://okigu.com/)**
+👩‍💼 OKIGU _(AI Consulting)_: **[okigu.com](https://okigu.com/)**
+
+👩‍🏫 Elite AI-Assisted Coding _(course and community, with [@isaac-flath](https://github.com/isaac-flath))_: **[elite-ai-assisted-coding.dev](https://elite-ai-assisted-coding.dev/)**
 
 🔖 Blog: **[everything.intellectronica.net](https://everything.intellectronica.net/)**
 
