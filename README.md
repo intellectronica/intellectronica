@@ -6,7 +6,7 @@
 
 👩‍💼 OKIGU _(AI Consulting)_: **[okigu.com](https://okigu.com/)**
 
-👩‍🏫 Elite AI-Assisted Coding _(course and community, with [@isaac-flath](https://github.com/isaac-flath))_: **[elite-ai-assisted-coding.dev](https://elite-ai-assisted-coding.dev/)**
+👩‍🏫 Elite AI-Assisted Coding _(course and community)_: **[elite-ai-assisted-coding.dev](https://elite-ai-assisted-coding.dev/)**
 
 🔖 Blog: **[everything.intellectronica.net](https://everything.intellectronica.net/)**
 
