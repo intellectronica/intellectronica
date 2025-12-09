@@ -1,20 +1,24 @@
-### **Eleanor Berger ([@intellectronica](https://intellectronica.net/))** — [OKIGU](https://okigu.com/) — [Elite AI-Assisted Coding](https://elite-ai-assisted-coding.dev/)
+### **Eleanor Berger ([@intellectronica](https://intellectronica.net/))**
 
 ---
 
-🏠 Homepage: **[intellectronica.net](https://intellectronica.net/)**
+#### 🌐 **[intellectronica.net](https://intellectronica.net/)**
 
-👩‍💼 OKIGU _(AI Consulting)_: **[okigu.com](https://okigu.com/)**
+#### 🖖 **[Agentic Ventures _(EVERYONE building with AI)_](https://agentic-ventures.com/)**
 
-👩‍🏫 Elite AI-Assisted Coding _(course and community)_: **[elite-ai-assisted-coding.dev](https://elite-ai-assisted-coding.dev/)**
+#### 👩‍💼 **[OKIGU _(AI Consulting)_](https://okigu.com/)**
 
-🔖 Blog: **[everything.intellectronica.net](https://everything.intellectronica.net/)**
+#### 👩‍🏫 **[Elite AI-Assisted Coding _(course and community)_](https://elite-ai-assisted-coding.dev/)**
+
+🔖 Substack: **[everything.intellectronica.net](https://everything.intellectronica.net/)**
 
 📢 X: **[@intellectronica](https://x.com/intellectronica)**
 
 👩🏽‍💻 LinkedIn: **[in/intellectronica](https://www.linkedin.com/in/intellectronica/)**
 
 📺 YouTube: **[youtube.com/@intellectronica](https://www.youtube.com/@intellectronica)**
+
+@ Threads: **[@intellectronica](https://www.threads.com/@intellectronica)**
 
 🛠️ HN: **[id=intellectronica](https://news.ycombinator.com/user?id=intellectronica)**
 
