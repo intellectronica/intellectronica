@@ -1,6 +1,6 @@
 ### **Eleanor Berger ([@intellectronica](https://intellectronica.net/))**
 
-#### 🌐 **[intellectronica.net](https://intellectronica.net/)**
+### 🌐 **[intellectronica.net](https://intellectronica.net/)**
 
 ---
 
