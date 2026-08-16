@@ -7,8 +7,8 @@
 | &nbsp; | &nbsp; | &nbsp; |
 | :--- | :--- | :--- |
 | 🖖 | **[Agentic Ventures](https://agentic-ventures.com/)** | _EVERYONE building with AI_ |
-| 👩‍💼 | **[OKIGU](https://okigu.com/)** | _AI Consulting_ |
 | 👩‍🏫 | **[Elite AI-Assisted Coding](https://elite-ai-assisted-coding.dev/)** | _Course and community_ |
+| 🟣 | **[Jimini Health](https://jiminihealth.com/)** | _AI for behavioural health_ |
 | 🔖 | **Substack** | [everything.intellectronica.net](https://everything.intellectronica.net/) |
 | 📢 | **X** | [@intellectronica](https://x.com/intellectronica) |
 | 👩🏽‍💻 | **LinkedIn** | [in/intellectronica](https://www.linkedin.com/in/intellectronica/) |
